@@ -1,1 +1,1 @@
-Aquí muestro mis programas que comprato en mi blog.
+Aquí muestro mis programas que comparto en mi blog.
